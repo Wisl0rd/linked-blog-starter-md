@@ -1,0 +1,3 @@
+Diferente das outras, a Casa Blackbanner não segue uma divindade específica, mas sim o credo de que o poder e a influência são alcançados através de astúcia, riqueza e força militar. Eles são uma família mais nova, que fez fortuna através do comércio marítimo e tem uma influente rede de mercenários e espiões.
+
+**Membro proeminente:** [[Varian BlackBanner]] - Um comerciante astuto e um mestre da espionagem, conhecido por sua habilidade em manipular os fios do poder a seu favor.

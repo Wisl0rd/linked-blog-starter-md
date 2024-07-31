@@ -1,0 +1,11 @@
+No ano 230 DGG, a nação gelada de [[Nihilecht]] estava envolta em um mistério e fascínio pelos segredos escondidos no distante Pico da Eternidade. Este pico imponente, localizado nas montanhas ao norte, era um lugar de lendas e perigos desconhecidos. Determinado a revelar os segredos do Pico e fortalecer seu reino, o Jarl de [[Nihilecht]], [[Baldur]], organizou uma expedição que ficaria para sempre gravada nos anais da história.
+
+A expedição foi liderada pelo renomado explorador e geógrafo, [[Thalor Frostblade]], um homem conhecido por sua coragem e determinação. Acompanhado por um grupo de bravos guerreiros e sábios, incluindo magos especializados em magia do gelo e guias experientes das montanhas, [[Thalor]] partiu para a jornada que muitos consideravam impossível.
+
+A ascensão ao Pico da Eternidade foi uma prova de resistência e coragem. Os ventos gelados, as avalanches frequentes e as criaturas hostis que habitavam as montanhas tornavam a expedição extremamente perigosa. Muitos desistiram ao longo do caminho, mas [[Thalor]] e seu grupo continuaram, movidos pela esperança de desvendar os segredos do Pico.
+
+Após semanas de desafios implacáveis, a expedição finalmente alcançou o cume do Pico da Eternidade. Lá, encontraram um antigo templo esculpido no gelo, repleto de inscrições antigas e artefatos místicos. As inscrições revelaram conhecimentos arcanos sobre a manipulação da magia do gelo e segredos sobre a história ancestral de [[Nihilecht]].
+
+[[Thalor]] e seu grupo trouxeram de volta esses conhecimentos, que fortaleceram a posição de [[Nihilecht]] como um centro de poder mágico e resistência. A expedição ao Pico da Eternidade não apenas revelou segredos antigos, mas também inspirou uma nova era de exploração e descoberta no reino, solidificando a reputação de [[Nihilecht]] como uma terra de coragem e mistério.
+
+Essa expedição é lembrada até hoje como um marco de bravura e determinação, um testemunho do espírito indomável do povo de [[Nihilecht]] e da liderança visionária de [[Baldur]] e [[Thalor Frostblade]].
